@@ -1,1 +1,0 @@
-# ministore.github.io
